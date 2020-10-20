@@ -7,15 +7,11 @@ hero_image: "/content/images/adrien-olichon--aOsCcTJXWY-unsplash.jpg"
 ---
 # “the mistery of the _bridge between the conscious and the unconscious_”
 
-Introduction 
+Since the first school enrollment we learn to rationalize our thinking and to think as machines. We surrender ourself to noises, where we need to describe our act and thinking. Before acting, we must create an empathy and understanding to the sounds as a whole to encode the high volatile noises in the current world.
 
-Since the first school enrollment we learn to rationalize our thinking and to think as machines. We surrender ourself to noises, where we need to describe our act and thinking. Before acting, we must create an empathy and understanding to the sounds as a whole to encode the high volatile noises in the current world. 
+Intuition is the state that bridges the sounds in the highly volatile ambiguous, complex and uncertain noises.
 
-Intuition is the state that bridges the sounds in the highly volatile ambiguous, complex and uncertain noises. 
-
-  
-  
-What makes intuition special? 
+What makes intuition special?
 
 Why are many not able to enter the bridge?
 
@@ -24,8 +20,8 @@ Lex Podcast and talking about
 
 Was wird uns später von Maschinen unterscheiden?
 
-Empathie, Kreativität, _Intuition_  
-  
+Empathie, Kreativität, _Intuition_
+
 Entering the state of intuition  
 \-text
 
@@ -33,7 +29,7 @@ How can we trust upcoming talents with a strong intuition?
 
 Intuition as incubator (technology)
 
-Intuition as drive (sport) 
+Intuition as drive (sport)
 
 I walked on the banks of the tincan banana dock and sat down under the huge shade of a Southern Pacific locomotive to look for the sunset over the box house hills and cry.
 
