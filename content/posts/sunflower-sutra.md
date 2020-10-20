@@ -1,10 +1,31 @@
 ---
 date: 2019-08-08T22:42:09.000+00:00
-title: Sunflower Sutra
-author: Allen Ginsberg
+title: Intuition
+author: Milos Stojkovic
 hero_image: "/content/images/adrien-olichon--aOsCcTJXWY-unsplash.jpg"
 
 ---
+# “the mistery of the _bridge between the conscious and the unconscious_”
+
+Introduction  
+  
+What makes intuition special? 
+
+\-Why are many not able to enter the bridge?
+
+\-Humans become machines  
+Since the first school enrollment we learn to rationalize our thinking and  to think as machines.
+
+\-Whats differs us when machine can become conscoius?  
+Lex Podcast and talking about
+
+How can we trust upcoming talents with a strong intuition?
+
+How can we access the state of intuition?  
+\-text
+
+Intuition as incubator and driving 
+
 I walked on the banks of the tincan banana dock and sat down under the huge shade of a Southern Pacific locomotive to look for the sunset over the box house hills and cry.
 
 Jack Kerouac sat beside me on a busted rusty iron pole, companion, we thought the same thoughts of the soul, bleak and blue and sad-eyed, surrounded by the gnarled steel roots of trees of machinery.
