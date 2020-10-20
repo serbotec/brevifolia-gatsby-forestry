@@ -7,7 +7,9 @@ hero_image: "/content/images/adrien-olichon--aOsCcTJXWY-unsplash.jpg"
 ---
 # “the mistery of the _bridge between the conscious and the unconscious_”
 
-Since the first school enrollment we learn to rationalize our thinking and to think as machines. We surrender ourself to noises, where we need to describe our act and thinking. Before acting, we must create an empathy and understanding to encode the high volatile noises in the current world.
+Since the first school enrollment we learn to rationalize our thinking. An action should always have reasons for our action. To built a reason we need to make key assumptions, and also need a logical formulation of the problem. 
+
+and to think as machines. We surrender ourself to noises, where we need to describe our act and thinking. Before acting, we must create an empathy and understanding to encode the high volatile noises in the current world.
 
 Intuition is the state that bridges the sounds in the highly volatile ambiguous, complex and uncertain noises.
 
